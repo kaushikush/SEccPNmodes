@@ -1,0 +1,1 @@
+# Spin-effects-in-Spherical-Harmonic-Modes-of-Gravitational-Waves-from-Eccentric-Compact-Binary-Inspir
